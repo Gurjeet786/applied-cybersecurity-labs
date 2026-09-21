@@ -1,1 +1,0 @@
-# applied-cybersecurity-labs
